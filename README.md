@@ -2,7 +2,8 @@ dude, its your birthday… and im sooo excited…
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/fb6e4138-a11f-4d2d-8438-3ebb76e138a4" />
 anyway chibi art by me sonNOBODY CARES KY ohok… 
 idk what to put here other than give me 50billion BIT COINS./jjjjjjj
-<!--
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/436d458c-9551-4261-b523-1c1f2563487a" />
+i love coolkidd here are my coolkidds…😳😳
 **RANSOM-WARED/RANSOM-WARED** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
