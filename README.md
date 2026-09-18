@@ -1,3 +1,4 @@
 dude, its your birthday… and im sooo excited…
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/c3818b25-d47f-466e-ba31-a4a26ddf724b" />
-gig by me.. ig nobodycarrs/jjjjj
+
+<img width="500" height="346" alt="image" src="https://github.com/user-attachments/assets/e6d5043d-f1bc-4088-8312-a8d991c914c0" />
+ill fix this later ok.
